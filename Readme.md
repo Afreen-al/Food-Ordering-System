@@ -11,4 +11,8 @@ Benefits:
 5.Expanded Reach: Enables restaurants to reach a broader audience by offering online ordering capabilities.
 
 
+![image](https://github.com/user-attachments/assets/d1262c19-9f23-4a35-9c57-1b7b1418423a)
+
+
+
 
